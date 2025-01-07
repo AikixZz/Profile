@@ -1,4 +1,4 @@
-# Hello, I'm Aikix or ดำน้ำบุ๋งๆ 
+# ดีค้าบบ
 
 Welcome to my GitHub profile! I'm programmer that can be ur doctor.
 
